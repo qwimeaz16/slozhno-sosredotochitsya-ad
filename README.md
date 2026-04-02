@@ -1,1 +1,1 @@
-qwimeaz16/slozhno-sosredotochitsya-ad
+https://github.com/qwimeaz16/slozhno-sosredotochitsya-ad
